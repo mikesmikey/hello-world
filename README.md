@@ -1,2 +1,3 @@
 # hello-world
-pls i really need money
+end my suffering
+i wanna die
